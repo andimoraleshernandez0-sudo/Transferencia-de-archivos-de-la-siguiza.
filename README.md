@@ -1,1 +1,0 @@
-# Transferencia-de-archivos-de-la-siguiza.
